@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Imarvind0698
 - 👀 I’m interested in Computer Network
 - 🌱 I’m currently learning Computer Network 
-- 💞️ I’m looking to collaborate on a project of Networking 
+- 💞️ I’m looking to collaborate on.... 
 - 📫 How to reach me ak9470516011@gmail.com 
 
 <!---
